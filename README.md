@@ -62,4 +62,6 @@ Associate this absence type with **MSA SA VACATION PLAN** so that workers can re
 | Length of Service Rule B | `≥ 5 Years → 30 Days`  |
 
 ---
+All Plans!
+https://youtu.be/5e1zd-B7vGQ
 
